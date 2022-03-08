@@ -1,1 +1,0 @@
-# GabauerDavid.github.io
